@@ -1,3 +1,3 @@
 ## Smart-Farm-Project
 
-[°­³²´ëÇĞ±³](https://web.kangnam.ac.kr/)
+[ê°•ë‚¨ëŒ€í•™êµ](https://web.kangnam.ac.kr/)
